@@ -1,1 +1,0 @@
-# Amitaryal1130nepal.github.io
